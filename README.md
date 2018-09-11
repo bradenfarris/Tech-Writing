@@ -8,5 +8,7 @@ With sources chosen, I will then semi-outline my points and match my information
 
 ## Writing the Paper 
 
-With my outline of topics and information, I will then 
+With my outline of topics and information, I will then *write the paper*. This process **can take hours**. 
+-This can be fun
+-And not fun, depends on the topic
 
